@@ -20,6 +20,6 @@ Last night I dreamt about eating in these Restaurants:
 
 ### Contact
 
-The best to get in touch with me is (https://twitter.com).
+The best to get in touch with me is (https://twitter.com/).
 
 
